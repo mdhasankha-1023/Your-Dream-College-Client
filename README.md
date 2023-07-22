@@ -1,2 +1,2 @@
-* Your Dream Colleges
+Your Dream Colleges
   
